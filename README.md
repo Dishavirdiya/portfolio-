@@ -1,2 +1,2 @@
-# kaaazmi.github.io
+# Disha.github.io
 My Portfolio
